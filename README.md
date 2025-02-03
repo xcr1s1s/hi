@@ -3,5 +3,5 @@ professional gaming stan!
 matching w/ lasagna addict lmao
 
 
-interests on carrd + strawpage
-still a wip stay tuned i think
+interests on carrd + strawpage errm!!
+this is still a wip stay tuned i think
